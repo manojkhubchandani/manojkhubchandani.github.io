@@ -1,2 +1,1 @@
-# manojkhubchandani.github.io
 Portfolio
